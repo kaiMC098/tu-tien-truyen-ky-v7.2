@@ -18,7 +18,7 @@
 
 🔗 **LINK TRUY CẬP CHÍNH THỨC:**
 
-   **Link Vào Game:** [⚔️ Nhấn vào đây để vào Game](https://kaimc098.github.io/tu-tien-truyen-ky-v6.0/)
+   **Link Vào Game:** [⚔️ Nhấn vào đây để vào Game](https://kaimc098.github.io/tu-tien-truyen-ky-v7.2/)
 
    **Link Lấy Key Kích Hoạt:** [👉 Nhấn vào đây để lấy Key](https://kaimc098.github.io/Get-key/)
 
